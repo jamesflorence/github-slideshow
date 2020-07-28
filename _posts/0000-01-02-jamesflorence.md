@@ -1,0 +1,1 @@
+5.	Finally re invoicing - advertiser would pay like we do tenancy….as an example let’s say £5k for a month with CPA agreed of £50 – so in this instance we keep the digital activity going until the client hits 100 sales. Assume we could get a daily report of sales then we know when to cut it off when number of sales are fulfilled?
